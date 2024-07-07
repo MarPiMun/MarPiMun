@@ -5,6 +5,8 @@
 - 💞️ I’m looking to collaborate on projects 
 - 📫 You can send me an email to marpimun@gmail.com
 - 😄 My name is Marina (her)
+- 💃 I like a lot dancing. It provides me with problem-solving and inspiration capabilities
+
 
 
 <!---
